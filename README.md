@@ -1,0 +1,1 @@
+# gedgets-stors.com
